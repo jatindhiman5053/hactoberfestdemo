@@ -5,9 +5,6 @@ Prince Kumar
 ankityadav1852@gmail.com
 Soumili @sequin_lush
 
-name-sambhav
-
-
 Shalini Yadav
 
 
@@ -22,3 +19,5 @@ thakuryashika976@gmail.com
 
 Aryan Panchal @aryan_260  twitter
 Aryaan Panchal @__aryan8_ insta
+
+Jatin Dhiman @Jatindhiman5053 insta
